@@ -2,7 +2,7 @@
 - 👀 I’m interested in PYTHON and GAMES
 - 🌱 I’m currently learning PYTHON
 - 💞️ I’m looking to collaborate on nada
-- 📫 How to reach me nuh uhhh
+- 📫 How to reach me: wolffur772@gmail.com
 - 😄 Pronouns: he/him/batman
 - ⚡ Fun fact: im from down under
 
